@@ -21,4 +21,12 @@ i'm a 10th-grade student who loves everything online! ✨ i'm into coding, gamin
 let's connect! find me on instagram 🤳📱 and youtube 🕹️📺📷.
 
 
-💖💖✨ have a great rest of your day~! ✨💖💖
+
+
+
+
+
+
+
+
+# 💖💖✨ have a great rest of your day~! ✨💖💖
